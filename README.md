@@ -1,5 +1,5 @@
 # 💫 About Me:
-Software Engineer with over 5 years of experience, delivering impactful and high-quality solutions that drive results.
+Software Engineer with over 7 years of experience, delivering impactful and high-quality solutions that drive results.
 
 
 ## 🌐 Socials:
